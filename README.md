@@ -1,1 +1,2 @@
 - 👋 Hi, I’m Truong
+- Những thứ gì có thể đổ thừa đều không phải là lỗi của mình
